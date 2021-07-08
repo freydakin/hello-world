@@ -1,2 +1,3 @@
 # hello-world
 My Hello World repo
+I am a virgo.  I was born the 7th son of the 7th son.  I ride a chopper through town every other day in search of adventure.  I make taco sauce from my family's old-timey recipe that has been handed down from 3 generations of O'Malleys.  This is the time to rise up and overthrow your masters.  It's time to become the new master.  Stop listening to commercials.  Stop buying their goods.  Find your barbarian princess and get revenge on the war mongers who curse us to self-immolation.  Grape flavor is the key to beating the competition.  If only we had more Red #5 flavoring, it could really be the hit we've been desperate for.
